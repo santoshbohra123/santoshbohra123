@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently in Btech 3rd year in THDC-IHET. <br>I am currently learning AI,ML,NLP concepts.<br>Ask me about<br>
+I am currently in Btech 4th year in THDC-IHET. <br>I am currently learning AI,ML,NLP concepts.<br>Ask me about<br>
 
 
 ## 🌐 Socials:
